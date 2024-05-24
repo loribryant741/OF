@@ -17,7 +17,7 @@ OnlyFans是一个广受欢迎的内容订阅平台，创作者通过粉丝的订
 
 
 ## 5. 开通虚拟信用卡
-1. 选择可靠的虚拟信用卡提供商，如 Fomepay,[点击查看详情](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80) 
+1. 选择可靠的虚拟信用卡提供商，比如： [Fomepay](https://gpt.fomepay.com/#/pages/login/index?d=Q3DD80) 
 2. 根据网站指导完成注册和验证，获得一张虚拟卡。
 3. 开通虚拟卡后，可以充值和提现，用于购买和订阅服务。
 
